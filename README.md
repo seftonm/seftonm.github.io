@@ -1,3 +1,5 @@
+personal backup of https://lc100e.github.io/
+
 
 ## LAND CRUISER STATION WAGON
 #### CD Factory Maintenance Manual (SC0020E)
